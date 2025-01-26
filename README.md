@@ -1,5 +1,10 @@
 # Tap Tap "Karma"?
 
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/YOUTUBE_wp4kbG4fqTU/0.jpg)](https://www.youtube.com/watch?v=wp4kbG4fqTU)
+
+[https://www.youtube.com/watch?v=wp4kbG4fqTU](https://www.youtube.com/watch?v=wp4kbG4fqTU)
+
+https://www.youtube.com/watch?v=wp4kbG4fqTU
 
 Video Demo:
 
