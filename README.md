@@ -1,7 +1,7 @@
 # Tap Tap "Karma"? A remake of Tap Tap Revenge
 
 The original "Tap Tap Revenge": [https://www.youtube.com/watch?v=wp4kbG4fqTU](https://www.youtube.com/watch?v=wp4kbG4fqTU)
-https://www.youtube.com/watch?v=wp4kbG4fqTU
+
 
 My attempt at a remake: 
 
